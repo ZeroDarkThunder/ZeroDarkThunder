@@ -4,6 +4,8 @@ I am a Hacker for hire. I have a masters degree in cyber security, graduated eig
 
 Get in touch if you're interested in having asymetric power in your next business or personal engagement.
 
+Signal: Semtex.69
+
 pavelsklowdowski@gmail.com
 
 https://de.linkedin.com/in/medusasrorrim
