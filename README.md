@@ -4,7 +4,7 @@ I am a Hacker for hire. I have a masters degree in Cyber Security, graduated eig
 
 I have worked as a software and security engineer in the US and Germany. I'm currently in Texas but I'm happy to fly out for any engagement which requires a personal touch. 
 
-Get in touch if you're interested in having asymetric power in your next business or personal engagement.
+Reach out if you're interested in having asymetric power in your next business or personal engagement.
 
 Signal @Semtex.69
 
