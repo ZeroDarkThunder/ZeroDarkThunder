@@ -12,4 +12,4 @@ pavelsklowdowski@gmail.com
 
 https://de.linkedin.com/in/medusasrorrim
 
-English, German, Spanish
+English, German, Spanish, Mandarin [Basic]
