@@ -9,3 +9,5 @@ Signal: Semtex.69
 pavelsklowdowski@gmail.com
 
 https://de.linkedin.com/in/medusasrorrim
+
+English, German, Spanish
